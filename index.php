@@ -1,7 +1,8 @@
-<img src="https://benefhealth.com.br/itau-parceria-notredame-intermedica-pmes/">
 
-<img src="https://benefhealth.com.br/itau-parceria-notredame-intermedica-pmes/">
   
+<img src="https://alumnicoppead.com.br/wp-content/uploads/2016/01/itau-logo.jpg">
+
+
 
 
 
